@@ -1,5 +1,5 @@
 # 💫 About Me:
-🐢 A cute turtle that doesen't know how to code<br>🦕 Running "priorato del Bitcoin" podcast.<br>🐍 Memes are words that can't be pronounced.<br>🐊 Ask me about privacy tools or Bitcoin.<br>🐲 I'm a noob, I just like aesthetic. Sorry.
+🐢 A cute turtle that doesen't know how to code<br>🦕 Hosting "priorato del Bitcoin" podcast.<br>🐍 Memes are words that can't be pronounced.<br>🐊 Ask me about privacy tools or Bitcoin.<br>🐲 I'm a noob, I just like aesthetic. Sorry!
 
 
 ## 🌐 Socials:
